@@ -1,2 +1,0 @@
-# stupidbaldbaby.github.io
-website
